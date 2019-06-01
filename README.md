@@ -4,7 +4,7 @@
 </HEAD>
 </BODY>
 <center><strong>Danna Velntina Reyes Sarmiento.</strong></center>
-<center><img src=https://i.imgur.com/fwoOVJj.jpgwidth width="300" height="400"/></center>
+<center><img src=https://i.imgur.com/fwoOVJj.jpgwidth width="400" height="500"/></center>
 <p>
 Tengo tantas cosas para decirte, te quiero no por quien eres, sino por quien soy cuando estoy contigo Danna mi morchis hermosa
 puedes ser solamente una persona para el mundo pero para una persona tu eres el mundo entero 
